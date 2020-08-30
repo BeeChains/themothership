@@ -1,0 +1,2 @@
+# themothership
+THE MOTHERSHIP domain
